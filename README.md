@@ -1,2 +1,3 @@
 # lab7.2
-Laboratornaya
+Laboratornaya  jbsdvbksbv
+&&&&&&&&&&&&&
